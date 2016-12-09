@@ -17,6 +17,7 @@ Meals and side dish
 
 - rise or better brown rise
 - pasta with out sauce
+- boiled or even better poached potatoes
 - zwieback
 - saltsticks, Note: not to much because of salt
 - pretzel
